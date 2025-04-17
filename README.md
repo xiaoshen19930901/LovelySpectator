@@ -1,1 +1,1 @@
-# LovelySpectator.github.io
+# LovelySpectator
